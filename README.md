@@ -1,1 +1,1 @@
-# -Lock---Hide-Chat v12
+# -[ Lock Hide ] Chat v12
